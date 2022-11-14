@@ -10,5 +10,6 @@
 - 🌱 Rate x3
 - 💬 Fast Support
 
-### Contacts
+###🧩 Contacts
 [VK GROUP](https://vk.com/oldislandme)
+[DISCORD](https://discord.gg/qmRDU2XcT8)
